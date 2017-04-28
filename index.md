@@ -7,4 +7,4 @@ If you need to reach me, feel free to via email at evanpetrack [at] gmail.com
 
 
 
-#### I'm building this out - check back soon!
+I'm building this out - check back soon!
