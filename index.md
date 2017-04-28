@@ -1,8 +1,10 @@
-# Welcome to my person page, currently parked
+# Welcome to my personal page, currently parked
 
-### Something cool will be here soon, promise!
+### Some cool stuff will be here soon, so keep an eye out!
 
 
 If you need to reach me, feel free to via email at evanpetrack [at] gmail.com!
+
+
 
 #### I'm building this out - check back soon!
